@@ -1,2 +1,4 @@
-# hotfam
+# Hotfam
 Hotmail Accounts Checker - High CPM
+
+# UDAH PADA GEDE JANGAN BANYAK BACOT ): RECODE BOLEH TAPI JANGAN DI PERJUAL BELIKAN TOLOL
